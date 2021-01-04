@@ -1,0 +1,1 @@
+Quintain as per https://boardgamegeek.com/filepage/70807/agot-solitaire-rules
